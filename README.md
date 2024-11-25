@@ -1,0 +1,2 @@
+# loajananilir
+Bagian Pertama
